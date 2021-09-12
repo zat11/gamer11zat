@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gamer11zat
+- 👀 I’m interested in AI, Graphic Designing, Automation, Virtual Assitants, Bots
+- 🌱 I’m currently learning Python
+- 📫 How to reach me Reach me on Discord...
